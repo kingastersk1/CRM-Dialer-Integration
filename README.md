@@ -22,7 +22,7 @@ https://kingasterisk.com
 **CRM Dialer Integration**
 https://kingasterisk.com/services/crm-dialer
 
-**Free Live Demo: **
+**Free Live Demo:**
 https://demo.kingasterisk.com
 
 **Company**
